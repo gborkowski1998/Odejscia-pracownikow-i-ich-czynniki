@@ -1,0 +1,1 @@
+# Odejscia-pracownikow-i-ich-czynniki
